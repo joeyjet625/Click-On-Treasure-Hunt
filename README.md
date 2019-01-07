@@ -1,1 +1,0 @@
-# Click-On-Treasure-Hunt
